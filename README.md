@@ -36,6 +36,6 @@ Changes to this Privacy Policy We may update Our Privacy Policy from time to tim
 
 You are advised to review this Privacy Policy periodically for any changes. Changes to this Privacy Policy are effective when they are posted on this page.
 
-This Privacy Policy was last updated on 2024/01/23 22:22:42
+This Privacy Policy was last updated on 2024/09/11 22:22:42
 
 Contact Us If you have any questions about this Privacy Policy, You can contact us via email at dmitriik95@rambler.ru
